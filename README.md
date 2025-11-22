@@ -1,1 +1,1 @@
-Just some random notebooks (some of them from my blog)
+Just some random research notebooks (some of them from my blog)
